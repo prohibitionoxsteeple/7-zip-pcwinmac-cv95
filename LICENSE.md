@@ -1,4 +1,4 @@
-# 
+# Profesional 7-Zip herramientas para Mac OS | Élite 7-Zip herramientas para PC Windows. Con eliminación de archivos temporales y cifrado de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
